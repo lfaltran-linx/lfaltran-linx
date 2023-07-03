@@ -10,4 +10,4 @@
 
 ✉️ Vamos colaborar em projetos desafiadores e transformar ideias em realidade. Estou disponível para oportunidades de trabalho interessantes e parcerias emocionantes.
 
-📫 Entre em contato comigo por e-mail em lfaltran[at]gmail[dot]com ou conecte-se comigo aqui mesmo no Github. Vamos construir o futuro juntos!
+📫 Entre em contato comigo por e-mail em lfaltran[at]gmail[dot]com ou conecte-se aqui mesmo no Github. Vamos construir o futuro juntos!
